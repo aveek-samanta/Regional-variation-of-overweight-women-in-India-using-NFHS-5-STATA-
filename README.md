@@ -67,6 +67,8 @@ Overweight among Indian women is rising rapidly and shows strong links with urba
 India faces a double burden of malnutrition — undernutrition in younger women and overnutrition in older age groups.
 The strong association between overweight and NCDs highlights the urgent need for region-specific nutrition and lifestyle interventions and public health awareness.
 
+📄 Full Report View Online (Google Drive): https://drive.google.com/drive/u/0/folders/1he3_pWwSrXnJKR1_TIAVKaSw-ID9eHBw
+
 👤 Author
 Aveek Samanta
 Master’s Student 
